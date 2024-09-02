@@ -1,33 +1,19 @@
- # 🔪‎ ‎ ⸺‎ ‎ ❛ 𝙽𝚘𝚝𝚑𝚒𝚗𝚐 𝚛𝚎𝚊𝚕𝚕𝚢 𝚑𝚞𝚛𝚝𝚜 𝚠𝚑𝚎𝚗 𝚎𝚟𝚎𝚛𝚢𝚝𝚑𝚒𝚗𝚐𝚜 𝚊 𝚓𝚘𝚔𝚎 . ❜
-![](https://i.imgur.com/NxnBasj.png)
+***
+<div align="center">
+  
+══╬⠀ ⠀ <img src="https://files.catbox.moe/pmhoo5.gif" width="44" height="18"> <img src="https://files.catbox.moe/x2zm6h.gif" width="84" height="18"> <img src="https://files.catbox.moe/ai7qlv.gif" width="78" height="18"> <img src="https://files.catbox.moe/ssl0hm.gif" width="82" height="18"> <img src="https://files.catbox.moe/0gyf6q.gif" width="78" height="18">⠀ ⠀ ╬══
+</div>
 
-　　　　🌑 ‎ ‎ ‎ ⌣⌣ ‎ ‎ ‎ **Killer** ‎ ‎ ‎or ‎ ‎ **Ezekiel** ‎ ‎ ‎ ₊ ‎ ‎ ‎ ... ‎ ‎ ‎ ∿ ‎ ‎ ‎ He‎ ‎+ It‎ ‎ ‎ ‎ - ‎ ‎ ‎ **six**teen!!
+<p align="center">
+<img src="https://files.catbox.moe/hrp3ki.png" width="746" height="451">
+<p align="center">
+$\text{\color{lightgray}{he/it + 6teen }}$
+</p>
 
-usually ontab but not paying attntn 　‎  　‎ If you wanna int pls whisp! i'll be more likely to see it
+</p>
+<div align="center">
 
-`dni`　　　fit basic dni + pro+comship +  drama fiends + shipcourse + Fandomcourse
-
+[O1](https://rentry.co/k1llz)  [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
+</div>
 
 ***
-<details>
-
-<summary>⸺⸺‎ ‎ ‎ ponytown‎ ‎ ‎ boundaries‎ ‎ ‎ &‎ ‎ ‎ info/byi</summary>
- 
- 
-#### Based is UTDR + ROBLOX Area - Feel free to int unless im on dni !!
-
-DNT if i don't know you, I don't have a TD or TT I just.. don't want strangers cuddling booping or hiding behind me!
-
-Do not copy or take heavy inspo from my skins **WITHOUT** asking! 
-
-I have audhd , severe anxiety , depresion , and am a DID system of 30+ , Please respect that and do not ask for a specific person to front unless you are close. You can always ask who's fronting tho ^-^
-
-Underlust + Leviathantale DNI. I do not like,, those weird.. ass fetish.. things... whatever they are... STAY AWAY!!
-
-I tend to cuss a lot and can get hyper sometimes and make some jokes that people might not find as funny as I do + If i mkae you uncomfortable let me know! I most likely won't have realized
-
-I only use tonetags if I deem the situtation needs it, I won't use them otherwise.
-
-</details>
-
-*** 
