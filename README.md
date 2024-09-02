@@ -12,13 +12,13 @@
 <p align="center">
 <img src="https://files.catbox.moe/hrp3ki.png" width="746" height="451">
 <p align="center">
-$\text{\color{lightgray}{he/it + 6teen }}$
+$\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
 </p>
 
 </p>
 <div align="center">
 
-[O1](https://rentry.co/k1llz)  [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
+[O1](https://rentry.co/k1llz) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
 </div>
 
 ***
