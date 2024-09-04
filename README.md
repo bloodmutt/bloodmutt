@@ -20,5 +20,9 @@ $\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
 
 [O1](https://rentry.co/k1llz) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
 </div>
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=bloodmutt&label=📷&color=4f5254)
+</div>
 
 ***
