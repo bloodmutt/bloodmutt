@@ -18,7 +18,7 @@ $\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
 </p>
 <div align="center">
 
-[O1](https://rentry.co/k1llz) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
+[O1](https://rentry.co/bIoodmutt) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
 </div>
 <div align="center">
   
