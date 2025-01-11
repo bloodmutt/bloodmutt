@@ -10,7 +10,7 @@
 </div>
 
 <p align="center">
-<img src="https://files.catbox.moe/hrp3ki.png" width="746" height="451">
+<img src="https://imgur.com/X1opLlS.png" width="746" height="451">
 <p align="center">
 $\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
 </p>
@@ -18,7 +18,7 @@ $\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
 </p>
 <div align="center">
 
-[O1](https://rentry.co/bIoodmutt) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
+[O1](https://rentry.co/murdersans) ⠀ ⠀ ⠀ ⠀⠀ ⠀ [O2](https://www.tiktok.com/@ezekrawr?_t=8pOMLjedOSR&_r=1)
 </div>
 <div align="center">
   
