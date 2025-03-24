@@ -12,7 +12,7 @@
 <p align="center">
 <img src="https://imgur.com/X1opLlS.png" width="746" height="451">
 <p align="center">
-$\text{\color{lightgray}{HE/IT + 6TEEN + TKN }}$
+$\text{\color{lightgray}{HE/IT + 6TEEN }}$
 </p>
 
 </p>
